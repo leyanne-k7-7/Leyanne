@@ -19,3 +19,4 @@ Agust D é uma empresa especialista em bebidas alcoólicas como cervejas, corote
       leyanne.fereira@escola.pr.gov.br
     
   
+![whiskey-whiskey-glass](https://github.com/leyanne-k7-7/Leyanne/assets/134114311/48b5fe1b-2606-4bac-b552-751a22cc58c2)
